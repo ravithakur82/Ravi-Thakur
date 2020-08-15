@@ -1,0 +1,2 @@
+# Ravi-Thakur
+Ravi Thakur: “The Digital Entrepreneur from Bihar” is the Managing Director of kaamchaalu – In this competitive world you need to be smart to sell your product and make a mark in this Digital world. Ravi Thakur is one of the youngest and successful Digital Entrepreneurs in Bihar who started Digital Marketing from his own business. His Company is Leading Brand in Digital Marketing and very much in demand mostly in cities like Mumbai, Ranchi, Bangalore, Kolkata, Assam, etc..
